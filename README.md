@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **yelaroche@gmail.com**
 
-- ⚡ Fun fact **The body of a young man. The routine of an elderly senior. The sense of humour and the facial hair of a prepubescent boy.**
+- **The body of a young man. The routine of an elderly senior. The sense of humour and the facial hair of a prepubescent boy.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
